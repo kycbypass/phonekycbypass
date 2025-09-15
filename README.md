@@ -3,4 +3,4 @@ Here's a phone KYC Bypass for all the people who sell it to you for 3000euros, I
 
 
 Software POC
-https://youtu.be/1hL4FwmXgmU
+https://youtu.be/tYss4sr8JJU
